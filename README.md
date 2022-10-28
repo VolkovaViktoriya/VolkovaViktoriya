@@ -4,7 +4,7 @@
 - 📫 How to reach me:
 - volkovavm12@gmail.com
 - https://www.linkedin.com/in/viktoria-volkova-25611972
--  telegram: @Volkova_Viktory_12
+-  telegram: @Volkova_Viktory_12 (https://t.me/Volkova_Viktory_12)
 
 
 
